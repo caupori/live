@@ -1,4 +1,5 @@
-# How aircraft interiors have become cheap and tight
+![Branching](winner8.jpg)
+# Limited offer
 
 The interior of passenger planes was not always like this. Aircraft manufacturers are moving from luxury to maximum economy: Airbus recently told that they plan to accommodate up to 11 people in one row. We have seen how the airliner salons have changed in a century.
 
